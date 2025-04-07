@@ -1,1 +1,1 @@
-echo Hello 🅑r̸𝐢𝖌𝖍t̸_×͜×
+echo Hello Prince
